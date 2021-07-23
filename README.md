@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Embem55
-- 👀 I’m interested in leqarning linux and all things raspberry PI
+- 👀 I’m interested in learning linux and all things raspberry PI
 - 🌱 I’m currently learning SEO
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... YOU DON'T
